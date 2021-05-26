@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Lisa Noreski @lnoreski Director, People Strategy 
-- 👀 I’m interested in Networking and learnig more about software development. 
+- 👀 I’m interested in Networking and learning more about software development. 
 - 🌱 I’m currently hiring for talented engineers, data scientists, and innovative rock stars skilled at improvement management to work remote in the US. 
 - 💞️ I’m looking to connect, collaborate, and hire!
 - 📫 How to reach me lnoreski@nav.com and www.linkedin.com/in/lpundock
